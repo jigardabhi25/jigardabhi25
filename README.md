@@ -4,7 +4,7 @@
 
 ### **Explore my curated data analysis projects that showcase my skills and capabilities in various tools and technologies.**
 
-###**skills**
+### **skills**
 
 **SQL💻 Advanced Excel📈 Power Bi📊 Tableau 📉**
 
