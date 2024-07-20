@@ -9,9 +9,7 @@
 **SQL💻 Advanced Excel📈 Power Bi📊 Tableau 📉**
 
 Contact:
-
-jigardabhi75@gmail.com
+reach out to me via email at jigardabhi75@gmail.com 📧
 
 Connect:
-
-https://www.linkedin.com/in/jigarkumar-dabhi-427544285/
+LinkedIn: https://www.linkedin.com/in/jigarkumar-dabhi-427544285/
